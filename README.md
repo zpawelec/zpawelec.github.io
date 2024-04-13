@@ -1,1 +1,0 @@
-# zpawelec.github.io
